@@ -1,0 +1,27 @@
+# Roland Dyens' Arrangement of Alfonsina y el Mar: A Musical Tribute to a Poetic Tragedy
+ 
+Alfonsina y el Mar is a popular Argentine song composed by Ariel RamÃ­rez and FÃ©lix Luna in 1969. It is based on the life and death of Alfonsina Storni, a renowned poet who committed suicide by drowning in the sea. The song has been covered by many artists, including Mercedes Sosa, Shakira, and Natalia Lafourcade[^2^].
+ 
+One of the most remarkable versions of Alfonsina y el Mar is the one arranged by Roland Dyens, a Tunisian-French classical guitarist and composer. Dyens was known for his eclectic and innovative style, blending classical, jazz, and world music influences. He also had a passion for Latin American music, especially the works of Astor Piazzolla.
+ 
+**Download ✔✔✔ [https://t.co/11ZSjUnKMG](https://t.co/11ZSjUnKMG)**
+
+
+ 
+Dyens' arrangement of Alfonsina y el Mar is a masterpiece of musical expression, capturing the beauty, sadness, and mystery of the song. He uses various techniques, such as harmonics, glissandos, tremolos, and percussions, to create a rich and varied texture. He also adds his own improvisations and variations, making the piece more personal and original.
+ 
+Dyens' arrangement of Alfonsina y el Mar is not only a tribute to a great song, but also to a great poet. It is a musical reflection of Alfonsina Storni's life and legacy, her struggles and achievements, her love and despair. It is a piece that touches the heart and soul of the listener.
+
+If you want to listen to Roland Dyens' arrangement of Alfonsina y el Mar, you can find it on YouTube. You can also find the sheet music in PDF format on his official website. You will need a good level of guitar skills to play this piece, as it is quite challenging and demanding.
+ 
+Roland Dyens Alfonsina Y El Mar sheet music,  Roland Dyens Alfonsina Y El Mar guitar solo,  Roland Dyens Alfonsina Y El Mar free download,  Roland Dyens Alfonsina Y El Mar score,  Roland Dyens Alfonsina Y El Mar tablature,  Roland Dyens Alfonsina Y El Mar video,  Roland Dyens Alfonsina Y El Mar mp3,  Roland Dyens Alfonsina Y El Mar midi,  Roland Dyens Alfonsina Y El Mar 2 guitars duet,  Roland Dyens Alfonsina Y El Mar 4 guitars quartet,  Roland Dyens Alfonsina Y El Mar classical guitar,  Roland Dyens Alfonsina Y El Mar public domain,  Roland Dyens Alfonsina Y El Mar Ariel Ramirez,  Roland Dyens Alfonsina Y El Mar lyrics,  Roland Dyens Alfonsina Y El Mar song,  Roland Dyens Alfonsina Y El Mar arrangement,  Roland Dyens Alfonsina Y El Mar transcription,  Roland Dyens Alfonsina Y El Mar interpretation,  Roland Dyens Alfonsina Y El Mar tutorial,  Roland Dyens Alfonsina Y El Mar lesson,  Roland Dyens Alfonsina Y El Mar review,  Roland Dyens Alfonsina Y El Mar analysis,  Roland Dyens Alfonsina Y El Mar history,  Roland Dyens Alfonsina Y El Mar meaning,  Roland Dyens Alfonsina Y El Mar inspiration,  Roland Dyens Alfonsina Y El Mar performance,  Roland Dyens Alfonsina Y El Mar technique,  Roland Dyens Alfonsina Y El Mar fingering,  Roland Dyens Alfonsina Y El Mar notation,  Roland Dyens Alfonsina Y El Mar difficulty level,  Roland Dyens Alfonsina Y El Mar tuning,  Roland Dyens Alfonsina Y El Mar capo,  Roland Dyens Alfonsina Y El Mar chords,  Roland Dyens Alfonsina Y El Mar melody,  Roland Dyens Alfonsina Y El Mar harmony,  Roland Dyens Alfonsina Y El Mar rhythm,  Roland Dyens Alfonsina Y El Mar style,  Roland Dyens Alfonsina Y El Mar genre,  Roland Dyens Alfonsina Y El Mar composer biography,  Roland Dyens Alfonsina Y El Mar influences,  Roland Dyens Alfonsina Y El Mar awards,  Roland Dyens Alfonsina Y El Mar publications,  Roland Dyens Alfonsina Y El Mar editions,  Roland Dyens Alfonsina Y El Mar online store,  Roland Dyens Alfonsina Y El Mar buy online ,  Roland Dyens Alfonsina Y El Mar digital download ,  Roland Dyens Alfonsina Y El Mar print on demand ,  Roland Dyens Alfonsina Y El Mar best price ,  Roland Dyens Alfonsina Y El Mar customer reviews ,  Roland Dyens Alfonsina Y El Mar testimonials
+ 
+Roland Dyens passed away in 2016, leaving behind a legacy of amazing compositions and arrangements. He was one of the most influential and respected guitarists of his generation, and his music will continue to inspire and delight many people around the world.
+
+Alfonsina y el Mar is not only a song, but also a poem. It was written by FÃ©lix Luna, a famous Argentine writer and historian. He was inspired by the tragic story of Alfonsina Storni, who was diagnosed with breast cancer and decided to end her life in the ocean. The poem describes her last moments, as she walks towards the sea, accompanied by the moon and the stars.
+ 
+Alfonsina Storni was one of the most important poets of the modernist movement in Latin America. She was born in Switzerland in 1892, but moved to Argentina with her family when she was four years old. She started writing poetry at a young age, and published her first book in 1916. She was also a journalist, a teacher, and a feminist activist. She wrote about topics such as love, sexuality, gender roles, and social injustice.
+ 
+Alfonsina Storni died in 1938, at the age of 46. She left a note in her hotel room, saying: "I am going to sleep a little. Do not disturb me." She then walked to the beach of Mar del Plata, and drowned herself in the water. Her body was found the next day by some fishermen. Her death shocked and saddened the literary world, and her poetry became even more popular and admired.
+ 8cf37b1e13
+ 
